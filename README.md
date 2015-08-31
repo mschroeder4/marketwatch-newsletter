@@ -1,3 +1,3 @@
-# Marketplace Design Team Newsletters
+# Market Watch Newsletters
 
-Content here
+Instructions
